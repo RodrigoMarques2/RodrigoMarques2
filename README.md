@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RodrigoMarques2
-- 👀 I’m interested in all it roles!
+- 👀 I’m interested in all IT roles!
 - 🌱 I’m currently working at TOTVS CE.
 - 📫 How to reach me: rodrigojsmarques@outlook.com
 - Linkedin: https://www.linkedin.com/in/rodrigo-marques-47774518a/
